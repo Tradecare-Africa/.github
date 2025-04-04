@@ -27,7 +27,7 @@ Our extension services are designed to enhance productivity and sustainability t
 ✅ Commitment to Sustainable Agriculture and Food Security  
 
 ## Get In Touch
-📍 Nairobi, Kenya  
+📍 Kiambu, Kenya  
 📧 Email: info@tradecareafrica.com  
 🌍 Website: [www.tradecareafrica.com](https://www.tradecareafrica.com)  
 📱 Follow us on Social Media: **@TradecareAfrica**
